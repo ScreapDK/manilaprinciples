@@ -1,0 +1,4 @@
+manilaprinciples
+================
+
+https://manilaprinciples.org/
